@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @leonkwannz
+- 👀 I’m interested in web3
+- 🌱 I’m currently learning web3 coding,RWA.
+- 💞️ I’m looking to collaborate on web3 job 
+- 📫 How to reach me github and x. 
+- ⚡ Fun fact: coding more.
